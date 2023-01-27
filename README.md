@@ -1,3 +1,3 @@
 # test
 
-lazysanta061 JEV59Pr@KLHfmeE
+lazysanta061@gmail.com JEV59Pr@KLHfmeE
